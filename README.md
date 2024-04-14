@@ -1,5 +1,5 @@
-## 警告   
-**请勿**将本网页用作给妹子庆生/纪念日/表白等用途，除非妹子是学编程的。   
+hello m.alaikanasrulloh
+this yours birthday 
 **血的教训**。去年妹子生日的时候给她发了这个链接，两个月之后问起来她告诉我根本没看见右边那个蛋糕。**呵呵~~**
 Anyway that's life.
 
